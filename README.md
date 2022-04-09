@@ -1,2 +1,2 @@
 # MeerVanilla
-MeerVanilla - Meergolfs Vanilla+ Modpack!
+MeerVanilla - Meergolfs Survival Modpack!
